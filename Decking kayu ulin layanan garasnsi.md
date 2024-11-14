@@ -36,7 +36,7 @@ Agar decking ulin awet, lakukan perawatan sederhana berikut:
 2. Beri jarak sekitar 5–10 mm antara setiap papan untuk sirkulasi udara.
 3. Gunakan baut anti-karat atau stainless steel untuk daya tahan lebih lama.
 
-
+plaintext```
 
 Detailed article is shared here- [Decking kayu ulin outdoor](https://www.hargalantaikayu.net/decking-kayu-ulin-panjang-200cm/)
 
